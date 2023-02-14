@@ -1,2 +1,2 @@
 # Wallpapers
-Some wallpapers.
+Some wallpapers & avatars.
